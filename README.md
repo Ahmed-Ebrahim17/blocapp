@@ -51,9 +51,3 @@
 ![dsad](https://user-images.githubusercontent.com/38296077/126985335-dea9eaa5-0c2d-4edd-89ac-466dc1c33f93.jpeg)
 
 
-## YouTube ![YouTube Channel Subscribers](https://img.shields.io/youtube/channel/subscribers/UCYiZceCCbaRLP27U5RXRHog?label=Omar%20Ahmed&style=social) : 
-
-https://youtube.com/playlist?list=PLwWuxCLlF_ufA0GYYjlx_R4smekKH_AuB
-
-
-![Capture](https://user-images.githubusercontent.com/38296077/126990273-788d5756-d696-43d5-9b43-3a360664e7e4.JPG)
